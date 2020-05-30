@@ -1,37 +1,40 @@
----
-
-Percieved Dangers of Making a Tulpa
+# Риски владения тульпой
 
 ---
 
-    I always figured the Tulpas can kill you angle was /x/ making it /x/-approved. ~Arula
+> Я всегда думал, что тульпа может убить хозяина. Angle это доказал. \~Arula
 
-In this document I would like to address the perceived dangers of making a tulpa. Lots of people expect and fear certain things happening to them, some of which are quite impossible or just unrealistic. Usually these fears come from ignorance on the topic or something of the like. In the following I’ll put forth some regularly given reasons not to make a tulpa, and then my rebuttal based on my experiences and what I have collected from other sources.
+В этом документе рассмтотрим осознанные опасности создания тульпы. Много людей ожидают и боятся определённых вещей, которые могут с ними случиться, причём исходы, которых те люди опасаются, невозможны и просто нереальны. Как правило, все страхи идут из неграмотности в вопросах тульп. Я приведу некоторые популярные причины отказаться от практики тульп и вместе с ними мои опровержения, основанные на опыте и информации, собранной мной из источников.
 
-    A tulpa will always try to kill you to escape because it will become jealous about how you can perceive and act in the world and it can’t. It will want to experience the world and you’re literally trapping it in your head. You’re segmenting off a piece of your soul and trapping it, of course something is going to go wrong.
+> Тульпа всегда будет пытаться вас убить и сбежать, из-за ревности к факту, что вы способны существовать в реальном мире, а она -- нет. Ей захочется исследовать мир, в то время как вы держите её в плену вашего разума. Вы отделяете часть вашей души и держите её в клетке -- конечно, что-то пойдёт не так при таком раскладе.
 
-I see this more than I should considering it’s completely ridiculous. Let me break down the errors in this kind of thinking point by point. Firstly, a tulpa cannot kill you. They have no kind of interaction with the physical world at all. They can’t control your body processes either. Nor can they posses you and make you kill yourself. Secondly, people assume tulpae are all jealous by nature when really how they act is a tulpa by tulpa basis. Also, must tulpae don’t get very jealous about not being able to operate as a person. They know what they are and they don’t really mind too much. You can’t miss what you never had.
+Я вижу это даже более неадекватным, чем умещают слова "совершенно нелепо", и позицию эту следует прояснить.
 
-Also, you’re not trapping the tulpa anywhere. Trapping implies it could be free anyways, and this is not the case with a tulpa. Basically people have trouble putting the fact in perspective that tulpae are not actual beings. They’re a part of your mind, and while they should be treated as something that actually exists, the fact remains that they don’t. Bits of double think there, right?
+Во-первых, тульпа не может вас убить. У неё нет никакого взаимодействия с физическим миром. Она не может самовольно управлять вашим телом и уж тем более не принудит вас убить себя таким образом.
 
-    If you ignore your tulpa, it will get jealous. If you have other friends it will turn them against you. Your tulpa will hate if you fap to porn and it will get angry.
+Во-вторых, люди думают, что тульпы ревнивы по своей натуре, но на самом же деле они ведут себя так, как заложено в их основе. Да и тульпа не особо ревнует о возможности существовать как человек. Она знает, что является тульпой и её это не волнует. Так же и человек не может скучать по тому, чего не было.
 
-Time and time again I hear people saying that all tulpae are innately jealous, and if you don’t gear all your attention toward them you’re basically setting yourself up for disaster. All tulpae are different! Some need very little attention, some like to constantly be the center of it. Some will get a bit jealous, others won’t. There is no rule for jealousy when talking about tulpae. That’s just like trying to create rules for people, or groups of people. How your tulpa’s personality turns out is not entirely up to you, and it is possible you may end up with these traits, but not likely if they’re not a part of any of your ideals.
+Более того, вы не плените тульпу. Лишение свободы предполагает свободу как таковую, а "освободить" тульпу в таком контексте невозможно. В целом, люди испытывают проблему с восприятием тульпы, во всех аспектах считая её **человеком**. Тульпа -- часть вашего разума, и хоть вы считаете (и следует считать), что она как личность существует, факт говорит об обратном. Походит на двоемыслие, не так ли?
 
-    The tulpa will eventually try to take over your body completely.
+> Если вы проигнорируете тульпу, она начнёт ревновать. Если у вас есть другие друзья кроме неё, она разозлится на вас. Она станет ненавидеть вас, если вы мастурбируете, и это невероятно её злит. 
 
-This goes hand in hand with the multiple personality things, but I think some things need to be said here regardless. I would like to say that firstly, even elective possession by a tulpa is not known to be entirely possible. Theoretically, of course it could happen- electively. But we have not had any trusted accounts of this, because everyone who claims to have done it cannot explain the process, nor do they seem like a legit source. Irish_ and I don’t want to try possession, and in the case of me, it is because all the implications of something else controlling the body completely freaks me out.
+Я очень много раз слышал опасения людей о том, что тульпа неизбежно очень ревнива, и если вы не отдатите ей всё своё внимение, она превращается в катастрофу. Все тульпы разные! Некоторым внимания нужно очень мало, а кто-то хочет всегда быть в его центре. Некоторые ревнуют, но слегка, а иные и вовсе не ревнуют. Нет никакой закономерности в этом вопросе, когда речь касается тульпы. Это всё равно что обобщать огромные группы людей. То, каким характером будет обладать ваша тульпа, зависит не полностью от вас, и возможно, что она станет ревновать, но настолько, чтобы требовать, чтобы она была самой идеальной в вашем представлении.
 
-That being said, the tulpa can’t really take possession by force, even if we accept the fact that it is possible.
+> В конечном счёте тульпа попытается захватить полный контроль над вашим телом.
 
-    Tulpae will damage you psychologically because they’re assholes
+Эта тема идёт очень близко с вопросами множественных личностей, но не смотря на это стоит оговорить некоторое прямо сейчас. Самое первое -- неизвестно, полностью возможна ли хотя бы частичная возможность тульпы использовать ваше тело. Речь идёт о таком случае, где вы позволяете тульпе это сделать. Теоретически, это, конечно, может случиться, но у нас нет качественно проверенных случаев, когда такое происходило, потому как много кто из пробовавших это не может затем объяснить процесс или просто не являются доверяемым источником. Irish_ и я не хотим пробовать это на себе. В моём случае все последствия контроля над моим же телом кем-то другим меня пугают.
 
-Alright, as with the first danger this has a lot wrong with it, but I’ll basically break it down into two main points. Firstly, a tulpa can’t damage you psychologically. Even if they were a giant dick, and did wish you harm, the most they would be capable of doing would be following you around and annoying you, scaring you by standing creepily in dark hallways, not letting you sleep, or just being a dick like that. They can’t make you insane by somehow intertwining themselves in your psyche and ruining your mind. They can only really damage you about as much as a person who can’t touch you can.
+Да и тульпа, как говорилось выше, не может насильно управлять вашим телом, хотя мы принимаем факт, что это возможно.
 
-Secondly, your tulpa is not going to want to harm you in any way; even if you start to dissipate it for no reason or just generally act like a frothing douche. This is because firstly, they’re a manifestation of your mind, and they know this. They know they would be putting their own very existence in danger by fucking with you. Also, you both have complete empathy for each other. You know each other’s motivations, thought processes and everything. The tulpa really wouldn’t harm you because by extension it can feel the harm its doing.
+> Тульпа намеренно повредит вашей психике. Просто потому что все они -- мудаки. 
+
+Как и с самым первым опасением, здесь очень много неверной информации; разделю её на две части.
+
+Во-первых, тульпа не может нанести психологический урон. Даже будь она огромным членом и желай она вам зла, большинство из них в таком случае максимум способны на постоянное следование за вами, попытки раздражать вам или пугать, стоя в тёмных корридорах, не давать вам спать и нечто вроде этого. Она не может свести вам с ума, как бы перезаписывая свою личность вместо вашей и разрушая ваш разум. Она может причинить вам лишь такой вред, который мог бы причинить человек, никаким образом не способный дотронуться до вас.
+
+Во-вторых, ваша тульпа не хочет вредить вам; даже если вы захотите избавиться от неё без причины или будете вести себя с ней неприветливо. Её реакция объясняется тем, что вы её создатель, и она это знает. Она знает, что ставит вопрос своего существования под вопрос, если начнёт на вас выёбываться. Да и наконец, у вас же довольно много эмпатии друг к другу. Вы знаете друг друга полностью: мнения, ход мысли и вообще всё. Ваша тулпьа не станет вам вредить, потому что по сути сама почувствует вред, который причинит.
 
 ---
 
-FAQ Man
-
----
+Авторство: FAQ Man.
+Перевод: asciid.
