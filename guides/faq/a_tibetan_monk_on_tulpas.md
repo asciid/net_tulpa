@@ -1,21 +1,25 @@
----
-
-A Tibetan Monk on Tulpas
+# Тибетский монах о тульпах
 
 ---
 
-    What do Tibetans truly think about the practice of thoughtforms and tulpas?
+## Что тибетские монахи на самом деле думают о практие мыслеформы и тульп?
 
-It looks like a very dangerous practice to partake in without the instructions of a fully qualified master. From what I have read, it is clear to me that advanced practices are only permitted when there is such genuine guidance. Otherwise, there are many unpleasant and unwanted effects that can emerge. Anything from madness, sudden loss, injury or even death in some extreme cases may occur if the practices are performed inappropriately. Most require an empowerment ceremony of sorts, and the whole thing can be very colourful and ritualistic. Thoughtforms are not always helpful, and unless we ourselves have a clear auric field, our eminations will also be impure. Therefore whats the use of eminating putrid illusions of greed, anger and delusion? Furthermore, it is very hard to know how the thoughtform will interact with other people. In many cases, they can even invade the auric field of another being by attaching themselves to the aura, which can result in lasting damage. In fact, many people are possessed by many such illusory forms, which cause them to produce unwholesome and harful behaviours. There is a practice in tantra where during meditation the yogi visualizes a deity, in order to receive blessings and to create a relationship with that quality of the mind. There are some practices which can be done without empowerments, such as Medicine Buddha, Green Tara or Vajrasattva. As I mentioned above, most practices/meditational deities do require an empowerment because partaking in such activites could result in unwanted effects. i have heard that highly realized masters are able to eminate beings from their own mind-streams
+Это похоже на довольно опасную практику, чтобы использовать её без надзора опытного мастера. Из того, что я прочёл, ясно, что продвинутых навыков в этом деле можно достичь только при наличии хорошего руководства. В противном же случае придётся столкнуться со множеством неприятных и нежелательных эффектов, которые могут возникнуть, а диапазон таких огромен: сумасшествие, потеря идентичности, травмы и даже смерть, возникаюшая в особенно экстримальных случаях, если практиковаться ненадлежащим образом. Большинству людей требуется своеобразная церемония посвещения, при этом с ощущением ими всей её яркости и таинства. 
 
-    A lot of people believe tulpa to be psychological and hallucinatory in nature, what do you think on this?
+Что касаемо мыслеформ, они не всегда полезны; по крайней мере, пока мы не очистим собственное аурическое поле. До того момента наши мысли также не будут чистыми. Какой смысл тогда получать гнилостные иллюзии жадности, ярости и порока? Более того, сложно понять, как мыслеформы будут взаимодействовать с другими людьми. В большинстве случаев они могут даже вторгаться в аурическое поле другого иного существа, прикрепляясь к ауре, а это может причинять ей ущерб длительное время. По факту же вещей, большое количество людей одержимо такмим иллюзорными формами, которые заставляют их совершать нездоровые и вредоносные действия.
 
-Have you read what Alexander Berzin has to say about the illusory body? It’s orth taking a look.
+В тантре существует практика, где во время медитации йог визуализирует божество, чтобы получить его благословение и создать отношения с таким качеством разума. Также имеются практики, к которым можно приступить и без посвящения -- например, Будда Медицины, Зелёная Тара или Ваджрасаттва. Как я и писал ваше, большинство практик или медитационных божеств перед началом требуют специальное посвящение, введение, ведь за неимением его могут возникнуть нежелаемые эффекты. Я слышал также, что преисполневшиеся в практиках мастера способны создавать существ (тульп) из их собственных потоков разума.
 
-So far, im seeing lots of warnings all over the place. Such practices need proper guidance and supervision, otherwise really harmful effects arise: death, madness, illness.. so on. Doesn’t seem very pleasant. I have a feeling that many people are getting some small benefit from these practices, engaging in them without the guidance of a fully qualified master. however i dont feel like the benefit will last. maybe thats what is spreading this practice around all over the internet?
+## Много людей верят, что тульпа -- психологический и галлюциноторный по своей природе феномен. Что вы думаете об этом?
 
-I think perhaps the internet is too young to have enough information about thoughtforms and tulpas. Maybe in books and in articles written by experienced people, but in forums, I’m not so confident. Maybe there are some masters out there who are capable of doing these things properly, so that there is only benefit that arises from such practices. Unfortunately, most of what I have seen thus far is misuse. Lots of mental illness arising from that misuse as well. Lots of anger and delusion from trying to extend a faulty sense of self outwards.
+Читали ли вы, что об иллюзорном теле пишет Александр Березин? Если нет, разузнайте подробнее.
+
+Пока что я вижу много потенциальных опасностей всюду, касаемо субъекта обсуждения.
+
+Такие практики требуют тщательное руководство и надзор. В протвном случае эффекты непредсказуемо ужасны: смерть, сумасшествие, недуг или нечто подобное. Не звучит заманчиво. Мне кажется, что большинство людей получают совсем небольшую пользу от этих практик, входя в них без наставления грамотным и достаточно опытным мастером. Однако, не думаю также, что даже та малая польза будет длительна. Может, дело в распространённости практики в Сети?
+
+Насчёт неё самой, думаю, Интернет ещё слишком молод для достаточного количества информации о мыслеформах и тульпах. Может, она есть в книгах и статьях за авторством **опытных людей**, но я не очень-то и уверен во мнениях с форумов. Может, есть мастера, настолько чисто практикующие, что это приносит действительную пользу... К сожалению, всё, что я пока видел, не являетя ничем кроме злоупотреблений. Они в свою очередь и ведут к огромному множеству психических заболеваний, агрессии и большим заблужденям от попыток распространить лживое ощущение самого себя наружу.
 
 ---
 
-http://pastebin.com/Mjw0qjpt
+(источник: http://pastebin.com/Mjw0qjpt)
