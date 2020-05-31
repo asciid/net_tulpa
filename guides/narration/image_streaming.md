@@ -1,41 +1,37 @@
----
+# Трансляция образов
 
-Image Streaming
+Основа этой техники в обходе нашей бедной человеческой способности умственной концентрации и создании этого из любопытного ребёнка, полностью погружённого в свою прекрасную страну игр воображения. Как только вы начнёте, не потребуется больше волноваться о концентрации.
 
----
+1. Сядьте или ложитесь с вашей тульпой в такой позиции, в которой удобнее всего для вас вызывать визуальные образы на обратной стороне век. Закрытые, ваши глаза чувствительнее, чем будучи открытыми. Сфокусируйтесь на представлении чего-либо. Неважно, что это, и как оно детально. Вскоре образ появится. 
 
-The basis of this technique is to circumvent our poor human ability of mental concentration and make it that of a curious child totally immersed in their beautiful land of imaginative play. Once you begin, you need not worry about losing concentration.
+2. Ослабьте поток творческой экспрессии и начните вслух описывать каждый аспект детали, которую видите, настолько, насколько позволяет ваша наблюдательность: цвет, форма, состав, место в пространстве, текстура (включая визуально яркие текстуры, которые вы видите). Описывайте это продолжительно и так быстро, как можете.
 
-    1) Sit or lie down with your tulpa in which it is easiest for you to conjure images on the back of your eyelids. Your eyes are more sensitive closed than open. Focus on seeing something, it need not matter what, or how detailed. It will appear soon.
+3. Продолжайте. Не останавливайтесь и не волнуйтесь о том, стоит или нет описывать что-то из увиденного -- просто опишите это, но и не прекращайте концентрацию во время описания. Обязательно описывать в такой подробности, в которой возможно. Вместо использования существительных при описании лучше опишите текстуру: как песок переливается в вашей руке, как мелькают маленькие жёлтые или чёрные песчинки, как он утекает из ваших пальцев к множеству таких же на пляже; какой солёный дух несёт ветер у воды, как вы видите всю площадь и каких-нибудь птиц с чёрными точками на теле... Пока вы сосредоточенно смотрите на всё это, не давайте глазам отойти от описания на что-то ещё. Вы можете также добавить и другие испытываемые вами ощущения для укрепления излагаемой картины. Не думайте о том, что и когда описывать и не пытайтесь перескакивать с темы на тему. Вместо этого сделайте своё описание плавным, постепенно перетекая из одного в другое.
 
-    2) Loose the flow on your mouth of creative expression and begin describing out loud every aspect of visual detail the eyes can possibly analyze. Color, shape, detail, space in the environment, texture, especially any visually striking textures that you see. Do this in as rich detail as you can possibly express, continuously. Do this as fast as you possibly can!
+В то время как вы перемещаетесь от картинки к картинке, рассматривая задуманное и описывая каждую делать, которую ваш разум способен поймать, подумайте о том, как выражаться поэтичнее: так глубоко и красиво, как можете. Это не значит, что вам следует написать поэму; просто убедитесь, что ваш анализ постепенно углубляется.
 
-    3) Keep going. Do not bother worrying about whether or not you should express something, just express it, and do not remove your focus as you describe it. It is imperative to do this in rich of detail as possible. Rather than saying “what”, as in, “the beach, a car, etc”, describe texture, how the sand looks in your hand, how sparkly the little yellow or black specs are in the sand, how it flows through your fingers onto the beach, how it is carried by the salty air across the surface of the ground, how you can see the entire beach and some birds with black spots on their bodies, all the while looking on and watching it intently, never letting your eyes go from your description. You may even add some of your other senses in order to solidify it. Don’t feel like you have to switch between types of detail all the time, like texture and color, but you can continuously describe one type for a while and then move on to another.
+Генерация образов с невероятной ясностью и точностью не займёт много времени для предварительной практики. Однако, если вы описываете образы по одному и тому же шаблону на одинаковом уровне подробности, прогресс будет продвигаться медленнее, чем стоит. Если вы не можете описывать образ достаточно быстро, вы можете перейти на внутренний голос без субвокализации (просто думать о словах), однако не теряйте внимательности и не сокращайте концентрации на описании.
 
-As you move from scene to scene, keep doing this, watching them and describing every little detail that your mind can analyze. Think about poetically expressing yourself, as deep and beautifully as you can. It doesn’t necessarily have to be a poem, just make sure you keep going deeper with your analyzation.
+Вскоре поток мысленных образов расширится, и когда вы закроете глаза, перед вами предстанет огромный и детальный пейзаж поражающих красотой текстур. Затем вы заметите, что чёткость образов и достижение её предстаёт новым рекордом, и после того, как вы достигните очередной высоты в этом, создание будет проще с каждым разом. Следовательно, перед тем как продолжить, постарайтесь максимально увеличить достигнутое, насколько это возможно. Повторить прошлую сложность в таком случае будет легче. Это означает, что продолжительно долгая сессия может быть лучше нескольких, но прерванных и не увеличивших достигнутого. Порой, конечно, несколько сессий помогут **не потерять** прогресс точности. Польза от таких повторений нарастает по экспоненте. После достижения совершенства в этом вы можете бродить по вымышленным просторам, играться и исследовать, если вам не очень важно слегка потерять пользу от сессий.
 
-It does not take very long to begin generating images of amazing lucidity, however if you set the pattern of continuously describing the same level of detail it will take longer than normal. If you find you can’t describe the images fast enough, you may describe them using your mind voice without full sub-vocalization (just the thought intent) however be mindful so as not to reduce your focus on the activity.
+## Альтернативная деятельность
 
-Soon the torrent of mental images will widen, and when you close your eyes a vast landscape of beautiful textures and details will greet you. You will find that making these details will be like a new “high score,” and after you walk away it will be easier to recreate it a second or a third time and so on. Therefore, before moving on, try to increase this high score as much as humanly possible, that way when you come back it will be simple to recreate exactly that. This means that a long continuous session may be better than several sessions broken up over time that do not really show much increase, or it may mean that several sessions will keep you from lapsing back to less detail. It will be exponentially beneficial for every unit of increased max detail, or “high score” that you increase before moving on.
+Эти техники -- дополнение к главной, описанной выше, и использовать их стоит в случае, если образы на ум совсем не приходят. Самую основную практику используйте регулярно, ведь она самая полезная. По статистике, один взрослый человек из трёх испытывает большие сложности с воображением образов, но эти практики должны помочь даже самому упрямому воображению.
 
-After becoming proficient, you can walk around, play with things, and explore, if you don’t mind having a less beneficial forcing session.
+1. Опишите то, что видите после изображений. Найдите изображение тульпы, красивое место или даже свет или используйте вашу собственную спальню. Закройте глаза и сфокусируйтесь на описании того, что видите, но очень детально, перед тем, как образ не начнёт блекнуть в памяти. Продолжайте описывать то, что видите, даже после того, как увиденное начнёт менять цвет или форму.
 
-	Alternate Activities
+2. Найдите творческий подход к созданию образов. Представьте закрытые двери или поезда, транслируемые из вашей памяти; походите вокруг вслепую, включите и выключите свет, представьте стробоскопы или книги (с этого можно и начать практику, и использовать это как вспомогательную технику). Исследуйте ваши Грёзы! Я привёл хорошие примеры для воображения.
 
-These techniques are for supplementing the main activity in case you literally can’t “get images”. Stick to the main technique as a rule, because it is the strongest. An estimated 1 in 3 adults have extreme difficulty getting pictures in their mind but these techniques should loosen even the most stubborn of imaginations.
+3. Используйте другие ощущения. Слушайте музыку, ешьте вслепую или ваяйте образы из воздуха.
 
-    1) Describe after images. Find a picture of your tulpa, a beautiful place, or even a light, or you can use your own bedroom. Close your eyes and focus on describing them in as rich detail as possible, even after they begin to fade. Continue describing the after images even after they begin to change color and shape.
+Другие ваши ощущения могут даже передаваться тульпе, если вы способны переносить ту же технику им, в частности, запах, вкус и прикосновение. Чтобы использовать технику для вашего слуха, вы можете слушать музыку, описывая её без субвокализации (простым мысленным голосом). Как и после трёх дней тренировки вкуса в вине, затем из любителя можно развить мастерски тонкое ощущение. 10 дней практики по 10 минут будет достаточно, чтобы заметить серьёзный прогресс в становлении духовной мощи. Но это лишь одна из её граней, даже если вы получили прекрасное воображение. Если вы хотите достичь большего, не волнуйтесь о том, сколько времени это займёт, и как часто это следует делать. Выделите определённое время на каждый день, чтобы практиковаться. Ветераны в практике тульп не с проста постоянно подчёркивают эту идею.
 
-    2) Find creative ways to get your mind to render images. Imagine closed doors, trains, streaming from memory, walk around blindfolded, turn lights on and off, use stobe lights, books (to either get it started or as a technique), explore your wonderland, elevators, these are all good examples.
-
-    3) Use your other sense. Listen to music, eat blindfolded, air sculpting.
-
-Your other senses may even be imposed if you are able to transfer the same technique to them, especially smell, taste, and touch. In order to use this technique on your hearing, you may have to listen for music while describing it without sub-vocalization (so just the thought intent).
-
-It is insisted that after 3 days of training the sense of taste in wine tasting likewise, one can go from an average joe to master connoisseur sensitivity. 10 days of 10 minute practice is supposed to be enough to start seeing serious results in mental power. This is only a side perk though of having an awesome imagination. If you want to see serious results though, don’t worry about how long or how often, but set a specific time every day for forcing. Tulpa veterans continuously stress this idea for a reason.
-
-For more reading, visit http://www.winwenger.com/ebooks/guaran.htm
+За большей информацией посетите http://www.winwenger.com/ebooks/guaran.htm
 
 ---
 
-hydrix, http://community.tulpa.info/thread-visualization-image-streaming
+Авторство: hydrix.
+
+Оригинал: http://community.tulpa.info/thread-visualization-image-streaming
+
+Перевод: asciid.
