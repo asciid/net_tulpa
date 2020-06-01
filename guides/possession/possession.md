@@ -1,21 +1,38 @@
+# Одержимость
+
+## Перетекающий цвет
+
+Какой ваш любимый цвет? 
+Этот цвет вам напоминает вам вас самих, и всякий раз, когда вы думаете о нём, также следует думать о себе.
+Теперь пусть цвет выберет тульпа. Не допустите, чтобы она выбрала цвет, схожий с вашим, и если так вышло, попросите её поменять выбор или поменяйте его сами, только не обидьте её. Я рекомендовал бы синий и красный.
+Теперь постарайтесь ассоциировать цвет с ней, и если думаете о цвете, также думайте о тульпе.
+
+Теперь перейдем непосредственно к одержимости. Положите свою руку куда-нибудь, добейтесь комфортного положения, неважно, как. 
+Посмотрите на неё из разума (как видение вашего разума видит реальный мир. Чтобы так сделать, вы можете закрыть глаза. В общем, нужно отрисовать вашу руку не глазами, а разумом.)
+Придайте вашей руке выбранный вами цвет.
+Затем вам нужно "выкачать" цвет из руки, пока вы не перестанете её чувствовать; мысленно отделите себя от руки.
+"Выкачанный" цвет поместите где-нибудь в разуме в одной маленькой точке.
+
+Теперь спросите у своей тульпы: "Хочешь сделать это?" или "Готова ли ты?", чтобы показать, что не принуждаете (и не принуждать) к одержимости. Если она ответит положително, заполните руку цветом, который вы выбрали, но очень медленно. Сначала рука будет слегка дёргаться. Попросите её дотронуться вашего большого и указательного пальцев одновременно. Вам покажется, что движения совершаете вы, но гоните эти мысли прочь, избегайте и не думайте об этом.
+
+Как только тульпа справилась, попросите её сжать руку в кулак. Движения по началу будут медленными и неспокойными, но вскоре она научится, как работать с вашим телом.
+
+Повторяйте это так много, как можете, и когда вы почувствуете способность, начните перемещать руку. Первая сложность в практике -- плечо, и тульпа должна управиться со всеми мышцами, управляющими рукой, да и их так много, что вы даже не знаете, что таковые у вас есть.
+
+Описанный мной метод работает для всего тела, но когда вы к этому приступаете, следует работать с КАЖДОЙ ЧАСТЬЮ: глазами, ушами, ртом, лёгким, лёгкими, горлом, голосовыми связками -- со всем. До возможности полного управления нужно очень много практиковаться, но когда вы достигните этого, ощущения будут непередаваемые.
+
+## Основное силовое упражнение
+
+Теперь, когда тульпа умеет перемещать руку, дайте ей попробовать сжать её в кулак, в то время как сами (не забирая управление!) постарайтесь открыть её через подсознание. Это станет чем-то вроде арм-рестлинга, и если рука закроется -- победа за тульпой; если же нет -- верх одержали вы.
+
+## Более сложная практика. Сверхнова
+
+Как только практика первого пункта станет слишком лёгкой для вас, вы можете попробовать то, что делаю я.
+
+Полностью отделите себя от тела, и, начиная c верхушки вашего мозгового ствола, сделайте супернову цвета вашей тульпы. Дайте ей (очень медленнно) проникать по всему вашему телу, и чем больше вы это делаете, тем быстрее получается.
+
 ---
 
-Possession
+Авторство: DJFLix.
 
----
-
-	Liquid Color
-
-What is your favorite color? That color resembles you, every time you think of that color you need to think of yourself. Now have your tulpa choose a color, it can’t be close or the same to yours, if they do choose a color close or the same as yours, either you need a new color or they do, but just make everyone happy (I recommend blue and red) . Now associate their color with them, if you think about that color you should think of them. Now, onto the possession part, rest your hand on something, get it comfy, I don’t care how. Look at it in your mindscape (thats the term I use, meaning how your mind’s eye sees the real world, look at the real world through your mind’s eye, you can close your eyes if you need.) your arm will be your color. You need to drain your hand of the color until you almost can’t feel it, disassociate yourself from your hand. Drain the color into somewhere in your brain or something, in one very small point. Now ask your tulpa “Do you want to do this?” and “Are you ready?”, you don’t want to force them into a possession. If they say “Yes.” then fill your hand with their color very slowly, at first all that will happen is slight twitching, ask them to touch your thumb and first finger together, at first the movements may feel like you, try to avoid this feeling. Once they got that down, ask them to clench your hand into a fist, the movements will be slow and choppy at first, but they will soon learn how to work your body. Do this as much as you can, then, when you feel ready, start moving up your arm, the first hardpoint is your upper arm, your tulpa must possess all the muscles that control your arm, and there are a lot of back muscles that you don’t even realize you have. This method works for your whole body, but when you do this, you must do it for EVERY PART, your eyes, ears, mouth, nose, lungs, throat, voice box, everything. It takes a long time for full control to be accomplished, but when it is, the feeling is amazing.
-
-	Basic Strength Exercise
-
-Now that your tulpa can move your hand, have them try and put it in a fist, while (not taking control) try to open in through your subc, it will become a healthy battle for the hand, if they close it they win, if you open it you win, simple as that.
-
-	Advanced Liquid Color, Supernova style
-
-Once Liquid color becomes easy to you, you can do what I do for possession. Disassociate from your body completely, then, starting at the top of your brainstem, create a supernova of your tulpa’s color, have it (very slowly) go over your whole body, the more you do this, the faster the supernova can go.
-
----
-
-DJFLix
+Перевод: asciid.
