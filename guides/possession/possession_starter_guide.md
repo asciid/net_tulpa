@@ -1,71 +1,73 @@
----
+# Одержимость: Руководство для начинающих
 
-Possession Starter Guide
+> Дисклеймер: Привет, я Oguigi, и я -- тульпа Koomer'а. Это руководство описывает то, как я вселяюсь в него. Пожалуйста, будьте внимательны к своей безопасности и безопасности вашей тульпы, и не перегружайте никого из вас.
+> 
+> Будьте терпеливы и тренируйтесь в безопасном и закрытом от посторонних глаз месте и учтите, что мои практики не сработают на абсолютно каждом. Разум -- абстрактная вещь, и нет лишь одного способа что-то с ним сделать. Это руководство -- нечто экспериментальное, но мы с Koomer'ом надеемся, что наш опыт будет полезен тем, кто хочет достичь своей цели.
 
----
+Koomer (хозяин): Одержимость -- полезный навык, позволяющий вашей тульпе напрямую влиять на физический мир, перемещая и управляя телом. Это может быть и весело: тульпа может играть с вами, учиться говорить телом, равно как печатать и писать. Это отличный спопоб дать тульпе портал во внешний мир. И данное руководство составлено совместно с моей тульпой, Oguigi. Она объяснит всё подробнее, даст детали и полезные трюки для практики.
 
-Disclaimer: Hello, my name is Oguigi, and I am Koomer’s tulpa. This guide describes my way of doing possession. Please be considerate of you and your tulpa’s safety, and never overwork yourself or your tulpa.
+(Для хозяев: Перед началом таких практик я советовал бы вам добиться доверительных и надёжных отношений с вашей тульпой.)
 
-Be patient and train in a safe and private area, and please acknowledge that the advice I give may not apply to everyone. The mind is an abstract place and there is no single way to do things. This guide is somewhat experimental, but Koomer and I hope that this method will help those who are struggling to achieve possession.
+Исходя из самой природы явления, советую читать руководство вместе с тульпой.
 
-Koomer (host): Possession is a very useful skill that allows your tulpa to influence the physical world directly, by moving and controlling your body. It can also be fun. Tulpae can play games with you, learn to speak with your body, as well as type and write. This is a great way of giving them a portal to the outside world. The following is written by my tulpa, Oguigi. She will explain and give details and helpful tips on possession.
-
-(To hosts: Before you start possession, I strongly recommend that your tulpa be able to communicate with you reliably.)
-
-Because of the nature of possession, be sure to read this guide with your tulpa.
-
-Oguigi (tulpa): What I am about to write is aimed at tulpae, because we are the ones primarily responsible for whether possession works or not. The host’s role is to relax their body and let us attempt to assume control over it; to coach us on how to move each body part; and to encourage us to try our best.
+Oguigi (тульпа): Мои слова направлены к тульпам, потому что лишь мы в первую очередь ответственны за возможность одержимости. Задача хозяина -- расслабить тело и позволить нам взять контроль над ним; научить нас перемещать каждую часть тела и воодушевить нас на старания.
 
 ---
 
-The first thing you need to be able to do is have some kind of awareness of your host’s body. It’s very important that you experience what they see, hear, feel, taste, etc. as they do. You need to relax yourself and tune out your own surroundings, then focus on your host’s body.
+Первое, чего стоит добиться -- своего рода осознание тела хозяина. Это очень важно, ведь вы почувствуете, что он слышит, чувствует, ощущает и увидите то, что видит он. Расслабьтесь и настройте собственное окружение, а затем сфокусируйтесь на теле хозяина.
 
-Make sure your host knows what you’re doing so they can relax their body and not move. Focus on a simple part of the body like the index finger. Assume that body part is now yours, and try to gain awareness of this body part. (Note: This sometimes makes me feel a little tingling or numbness in the part the tulpa is focusing on. -Chupi)
+Убедитесь, что он знает, что вы собираетесь сделать, чтобы он смог расслабиться и не шевелиться.
 
-When you are focused try to move it, imagining that you are doing so. If this is your very first time, the body might reject your commands to make it move. This is normal. Even on your first try it might be possible for the index finger to move a couple millimeters in the direction you want.
+Сфокусируйтесь на простой части тела вроде указательного пальца. Теперь поверьте, что эта часть тела ваша и попытайтесь осознать её.
 
-Your host may notice that the finger “clicks” this is pretty much the smallest about of muscle movement possible. If the host detects these movements, please make sure that he/she tells you, and knows that these movements came from you.
+>(Заметка: Иногда это ведёт к подёргиваниям или онемению той части, которая нужна тульпе. -- Chupi)
 
-Most hosts can only give up a small fraction of their day for this. You can still train possession, even when you’re not controlling your host’s body. We tulpae come in all shapes and forms, but for training possession while not using the physical body you will want to assume a temporary form that is similar to your host’s body. Anything that’s “human/humanoid” is good enough.
+Когда вы сосредоточены, постарайтесь пошевелить ей и вообразите в то же время, что способны на это. Если это ваш первый опыт, тело может отрицать ваши команды пошевелиться, и это нормально. Даже в самый первый раз возмонжо пошевелить указательным пальцем на пару миллиметров в том направлении, куда вам хочется.
 
-For some being in a humanoid body might be strange at first, but the key is to get used to it. The brain has some magical ways of making things work. The way you move the toes, fingers, arms, and legs in your new humanoid body will be almost identical to the way you would try to move your host’s body during possession. (If you already have a human form, that’s great. All you need to do is keep possession in mind when ever you’re moving any part of your body.)
+Хозяин может заметить, что палец очень слабо дёргается; так слабо, насколько слабым может быть движение мышцы. Если он заметит эти движения, убедитесь, что он скажет вам об этом, и поймёт, что это ваша работа.
 
-Keep training and moving around in your humanoid body, with the goal of possession in mind. Training usually takes many hours so please be patient. You should always have a set time to train possession with your host, and should attempt this at least once a day. If possible you should set it at the same time each day, to gauge your progress on a daily basis, which is very helpful. I strongly discourage using random times, random days, or when you feel like it.
+Большинство хозяев могут выделить лишь небольшую часть дня для этих тренировок, но вы всё ещё можете тренироваться сами, даже если не управлете телом хозяина. У тульп могут быть абсолютно любые формы и состояния, но для тренировки вам не потребуется физической тело. Всё, что вам нужно -- сделать временную форму, похожую на тело вашего хозяина. Сойдёт также всё, похожее на человека.
 
----
+Для начала в нём будет довольно странно, но нужно привыкнуть к нему. У мозга почему-то есть магические способны, по которым это правда работает. Всё: как вы двигаете пальцами, руками и ногами -- в вашем новом теле будет схоже с тем, как двигаться стоит во время одержимости. (Если вы уже в форме человека, прекрасно. Всё, что вам нужно -- думать о процессе и держать его в мыслях, когда вы перемещаете всякую часть вашего тела.)
 
-Some extra tips:
-
-If you have a decent awareness of your host’s body, whenever he/she moves throughout the day, pay close attention to the way the body moves.
-
-When you are learning some of the more advanced things like walking, you must remember that the physical body does a lot of things automatically. This includes balance, so don’t be afraid to walk with the host’s body. If you’re worried about falling, then train in a grassy or otherwise soft area.
-
-Everything is a team effort. Hosts, if you cannot do possession it’s not your fault. Your tulpa plays the most important role, and all you can do is point him or her in the right direction. Tulpae, hopefully this guide will kickstart your efforts to get possession working, but everyone is different. Some host bodies are very agreeable to our will, while others might be very stubborn. Some tulpae will work on possession all day long, while others will put it as a side project. All of these variables will affect how quickly full-body possession can be achieved.
+Продолжайте тренироваться и двигаться в теле человека, думая о дальнейшем процессе. Практика обычно занимает немало часов, так что будьте терпеливы. Вам всегда следует устанавливать время для занятий с хозяином и стараться практиковаться с ним хотя бы раз в день. Если возможно, повторяйте это с ним каждый день в то же время, чтобы закрепить прогресс и сделать его регулярным, это очень полезно. Не советую в этом вопросе заниматься в случайное время и дни или только когда вы чувствуете, что вам это нравится. Занимайтесь регулярно.
 
 ---
 
-Trouble shooting & Guide clarification:
+## Дополнения
 
-This is only to add on to the main guide, and is not in any way a replacement.
+Если вы достаточно осведомлены о теле вашего хозяина и знаете, когда он двигается в течение дня, уделяйте внимание тому, как он двигается.
 
-Always read the main guide first.
+Когда вы пытаетесь разобраться в более сложных вещах (например, ходьбе), вам следует знать, что физическое тело делает много вещей автоматически. В их числе и балансировка, так что не бойтесь ходить в теле хозяина. Если вы боитесь упасть, тренируйтесь там, где падение будет мягким.
 
-Make sure that all of your tulpa’s attention is on the body; he/she must fully tune out the wonderland/mind/imposed environment and shift their focus to the body. You can have your tulpa focus on the body’s senses such as hearing, taste, and most importantly sight. If you are sitting down on a chair make sure your tulpa gets that same feedback: he/she should feel the chair underneath the body.
-
-Your tulpa needs to change his/her perspective: they are not watching the body anymore, they are the body. Your tulpa need to assume the body is theirs, just like how they have a sense of ownership of their wonderland bodies. Move your arm around a bit yourself. From your tulpa’s perspective the body should feel like it’s moving on its own. If you can talk to your tulpa then try to confirm this, otherwise you can skip this step.
-
-Now rest your dominant hand on your lap or on your desk or whatever else you prefer. Tell your tulpa that the hand is theirs and it’s a part of their being. Ask him/her to try to move the index finger, and they will move this finger like it belongs to them. That means no ‘thinking’ about moving it, they will move this finger in the same nature as they will move their wonderland bodies, by direct command - just like how a host will move their body. Even if the body don’t move at first, just keep pressing on. Once your tulpa gets past that initial resistance of moving any part of the body, it will become much easier to maintain that control.
-
-As for the host, they need to try their best not to interfere. After your tulpa has moved the finger, don’t try to take back control or move it under your will in any way. Doing this reinforces all of the resistance that tulpa had to get through in order to gain control of the part in the first place.
+Сам по себе процесс -- командная работа. Хозяева: если у вас не получается, вы в этом не виноваты. Ваша тульпа в этом деле занимает самую главную роль, и всё, что вы можете -- указать ей правильное направление. Тульпы: надеюсь, это руководство подтолкнёт ваши стремления к успеху, но все на самом деле разные. Некоторые тела владельцев податливы нашей воле, а иные упрямы. Некоторые тульпы работают над собой целый день, в то время как остальные практикуются время от времени. Все эти переменные повлияют на то, как быстро можно достичь полной синхронизации с телом владельца.
 
 ---
 
-Thank you for reading this guide. Please try my methods and see if it works for you, and report back your results. Don’t hesitate to provide any feedback on this guide you might have.
+## Решение проблем и разъяснение руководства:
 
-If you are struggling then please state your problem in this thread. I can then provide some extra assistance for your case.
+Это лишь дополнение к основной части, а не её краткая версия. Читайте это только после всего изложенного выше.
+
+Убедитесь, что всё внимание вашей тульпы на теле; она должна полностью отрегулировать среду своего разума/Грёз/вселения и сфокусироваться на теле. Также лучше получить внимание тульпу на ощущениями тульпу: слухе, вкусе и, что важнее всего, зрении. Если вы сидите на кресле, убедитесь, что тульпа получает отдачу. Ей следует чувствовать стул под своим телом.
+
+Вашей тульпе нужно изменить перспективу: они не смотрят за телом больше. Они -- само тело. Тульпе нужно убедиться в том, что тело принадлежит ей, прямо как ощущение, что тело, в котором они в Грёзах, им принадлежит. Сами же вы самостоятельно слегка подвигайте рукой. В ощущении тульпы тело должно ощущаться так, словно она перемещает руку сама. Если вы можете поговорить с вашей тульпой, постарайтесь подтвердить это. В противном случае -- пропустите этот шаг. 
+
+Теперь положите главную руку на полено, стол или куда угодно, куда хотите. Попросите тульпу пошевелить указательным пальцем, и она переместит его, словно бы владеет им. Это не значит, что она будет думать о том, как переместить его. Она будет им шевелить, словно перемещает тело в Грёзах по их непосредственной команде. Прямо как если бы хозяин сам использовал своё тело. Даже если движение не получается, продолжайте давить, добейтесь его. Как только тульпа преодолела первоначальное сопротивление, перемещая часть тела, станет куда проще брать контроль затем.
+
+Хозяевам же нужно постараться не вмешиваться. После того как тульпа использовала ваш палец, не пробуйте взять контроль обратно или переместить его по-другому. Если вы сделаете так, это усилит сопротивление, которой тульпе потребуется преодолеть, чтобы вернуть контроль над желаемой частью.
 
 ---
 
-Oguigi, http://community.tulpa.info/thread-possession-oguigi-koomer-possession-starter-guide
+Спасибо за внимание к руководству. Попробуйте описанное в нём и проверьте, работают ли методы. Обязательно сообщите нам о результатах. Не сомневайтесь, нам правда важно ваше мнение, каким бы оно ни было.
 
-Chupi, Waffles, Linkzelda, Koomer
+Если вы испытываете проблемы с практикой, сообщите о них в этой теме. Я постараюсь помочь вам и дам дополнительную информацию, полезную в вашем случае.
+
+---
+
+Авторство: Oguigi.
+
+Редактура: Chupi, Waffles, Linkzelda, Koomer.
+
+Перевод: asciid.
+
+Оригинал: http://community.tulpa.info/thread-possession-oguigi-koomer-possession-starter-guide
