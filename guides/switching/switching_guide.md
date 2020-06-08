@@ -1,26 +1,23 @@
----
+# Руководство по перестановке
 
-Switching Guide
+Итак, по результату нашего последнего успеха в переключении, я и Storm пишем для этого руководство. В целом, мы добились этого, когда я был расслаблен настолько, что пребывал на границе между сном и осознанностью, и Storm начал действовать. Вашей тульпе нужно уметь вселяться в ваше тело -- желательно, чтобы она освоила полную одержимость; также ей необходимо оставаться активной даже без вашего прямого внимания к ней. По моему опыту, тульпа делает здесь большинство дела, но и у владельца довольно важная роль тоже. Заметьте: так делаем только мы, и ваша возможность и способ могут отличаться.
 
----
+1. Расслабьтесь, займите удобную позу и выключите свет, если нужно. Вам не нужно, собственно, спать, но необходимо достаточно расслабиться. В основном, в умственном плане хозяину требуется "освободить путь" -- расслабить мышление достаточно, чтобы плыть в нём.
 
-So, In light of our recent success at switching, Storm and I are making a guide for switching. Essentially how we did it was that I relaxed until I got to just the edge of sleep, and then Storm took over. Your tulpa needs to be able to possess, full body possession is best; they also need to be able to remain active without you directly paying attention to them. In our experience, the tulpa does the most work here, but the host has an important role too. Please note that this is how we do it, and that Your Mileage Might Vary.
+2. В конечном счёте вы достигните точки, где ощутите, что не двигаетесь и, возможно, даже не мыслите; примерно в это время свою часть начинает Storm, а я ухожу. Это очень похоже на то, если бы вы заснули у телевизора во время фильма -- вы теряете внимание незадолго до погружения в сон.
 
-    1) Relax, get comfortable, turn off the lights if you have to. You don’t need to actually sleep, but you do need to get relaxed enough to where you can drift off. Mostly what needs to happen is that the host needs to “get out of the way”, so to speak.
+3. Для тульп: Я не знаю в точности, как это делается, но это похоже на одержимость. Я просто беру контроль над телом и всё. Я беру его, но при этом не возвращаю обратно.
 
-    2) Eventually, you will get to a point where you don’t feel like moving, or possibly even thinking; this is where Storm steps in, and I drift off.
-    It’s very much like when you fall alseep infront of a movie or tv, you stop paying attention for a while before you actually fall asleep.
+4. Для владельцев: Вам нужно расслабиться и просто дать тульпе взять верх. Я заметил, что даже когда она управляет, я чувствую, что происходит. Дайте ей сделать своё дело и не обращайте наэ это внимания.
 
-    3) “For the tulpas: I don’t know exactly how I do it, but it’s just like possessing the body. I just kinda take control, and Poof done. I just kinda took control, and he never took it back.”
+5. Развлекайтесь! Ответьте, если этот способ сработал. Нам интересно услышать ваши истории.
 
-    4) Now for the hosts: you need to relax, and just let them take over. I found that even when she was in control, I was still somewhat aware of what was going on. Just let it all go by, give it no attention.
-
-    5) Have fun! Post a reply if it worked for you, we’d love to hear your stories!
-
-Thanks to TheOtherTulpa and [Amir] for sharing their experiences and making this a little less one-sided to start.
-
-N.B.: I will edit this for typos and more info that comes along, so don’t hesitate to share what worked for you.
+Спасибо TheOtherTulpa и [Amir] за то, что поделились опытом и сделали руководство менее односторонним.
 
 ---
 
-Selfawarebot, http://www.reddit.com/r/Tulpas/comments/1cigb6/
+Оригинал: http://www.reddit.com/r/Tulpas/comments/1cigb6/
+
+Авторство: Selfawarebot
+
+Перевод: asciid
